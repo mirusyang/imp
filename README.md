@@ -2,4 +2,4 @@
 pre-release something....
 
 ## shares
-- [resume](http://pan.baidu.com/s/1eSL0yAm)
+- [resume](https://pan.baidu.com/s/1M5zn6HescDOvOZh1cDuLhw)
